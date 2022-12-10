@@ -1,0 +1,2 @@
+# QAUSARA
+meme coin
